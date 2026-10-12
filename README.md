@@ -1,0 +1,2 @@
+# premium-rock-hounding-001-rock-hounding-mineral-collec
+Tired of forgetting which pocket you stashed that rare agate in or mixing up your calcite from your quartz? Your rock collection deserves a system as organized as your hounding instincts.  Rock Hounding &amp; Mineral Collecting — Notion Template transforms your scattered notes, photos, and bags of specimens into a single, searchable database. It's the
